@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧠 Linux Enthusiast<br>🌐 Web Developer<br>🎮 Indie Game Developer<br>🔐 Security Researcher<br>
+🧠 Linux Enthusiast (archBTW)<br>🌐 Web Developer (little bit)<br>🎮 Indie Game Developer (hobby)<br>🔐 Security Researcher (fulltime)<br>
 
 
 ## 🌐 Socials:
